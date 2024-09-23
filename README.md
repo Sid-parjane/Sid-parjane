@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sid-parjane
-- 👀 I’m interested in 
+- 👀 I’m interested in Designing
 - 🌱 I’m currently learning backend
 - 💞️ I’m looking to collaborate on FullStack
 - 📫 How to reach me siddharthparjane07@gmail.com

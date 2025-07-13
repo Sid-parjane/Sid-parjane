@@ -2,7 +2,7 @@
 - 👀 I’m interested in Designing
 - 🌱 I’m currently learning backend
 - 💞️ I’m looking to collaborate on FullStack
-- 📫 How to reach me siddharthparjane07@gmail.com
+- 📫 How to reach me siddharthparjane20@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: My love life
 
